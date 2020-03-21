@@ -58,7 +58,7 @@ Se for MUITO urgente, ligue para pessoa.
 
 A ligação ao telefone deve ser último recurso. Se você usar muito isso a pessoa poderá demorar a lhe atender e pode ser justamente em um momento que você precisava da urgência.
 
-Lembre que cada ligação sua causará um grande impacto na atenção daquela pessoa, que já está sofrendo em trabalhar de cada pela primeira vez e tendo que lidar com toda distração que uma casa ainda não preparada para remoto oferece.
+Lembre que cada ligação sua causará um grande impacto na atenção daquela pessoa, que já está sofrendo em trabalhar de casa pela primeira vez e tendo que lidar com toda distração que uma casa ainda não preparada para remoto oferece.
 
 ### 7. Valide se cada pessoa tem tudo que precisa
 
